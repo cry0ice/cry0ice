@@ -1,6 +1,6 @@
 ### I am Cryo, just make something interesting...
 
-📫 How to reach me: mailto:cryo@disroot.org
+📫 How to reach me: cryo@disroot.org
 
 If you like what I do, maybe consider paying me some Monero 👇
 
